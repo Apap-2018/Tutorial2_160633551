@@ -1,1 +1,1 @@
-Notes : nama yang push Linda Ulvia karena ini laptop kakak saya
+Notes : nama yang push Linda Ulvia karena saya memakai laptop kakak saya. 
